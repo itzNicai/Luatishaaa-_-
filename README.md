@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @itzNicai:3
+- 👋 Hi, I’m @Luatishaaa>_<
 - 👀 I’m interested in everything related on programming<3
 - 🌱 I’m currently learning C++!
 - 💞️ I’m looking to collaborate on with everyone (Of course^^)
